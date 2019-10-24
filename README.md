@@ -1,2 +1,2 @@
 # About-me-
-Im a Undergraduate at Lehigh University's Business School 
+My name is Max Levine and I am an Undergraduate at Lehigh University's Business School 
