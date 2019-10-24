@@ -2,7 +2,7 @@
 My name is Max Levine and I am an Undergraduate at Lehigh University's Business School 
 **Max Levine**
 
-** ** Bethlehem, PA 18015 **|** 215-805-5170 **|** [mal223@lehigh.edu](mailto:mal223@lehigh.edu) **|** [www.linkedin.com/in/noah-levine-b34196193](http://www.linkedin.com/in/noah-levine-b34196193)
+** ** Bethlehem, PA 18015 **|** 215-805-5170 **|** [mal223@lehigh.edu](mailto:mal223@lehigh.edu) **|** 
 
 
 
